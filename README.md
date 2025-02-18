@@ -17,3 +17,17 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ## Oceania
 
+### [Kingston Park Raceway](https://kingstonpark.com.au/) - Brisbane Australia 
+![Go karting Photo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSO-UROmdVXrbatiw6EHIkql09Fjxd7fEub0g&s)
+
+If you're looking for the ultimate Go Karting experience, then get on track here at Kingston Park Raceway and find out why so many of Brisbane's go karting enthusiasts keep coming back.
+
+Be amongst the 1st to race in our brand new fleet of Sodi SR5 Race Karts! Appearing for the first time in Queensland this fleet of karts will offer a real racing experience like none other! 
+
+Feel the rush of speed as you hit the banked corners at full speed.
+
+Experience a real race event on a 1100m international standard circuit on our Le Mans track for the ultimate go karting experience. .
+
+Your safety is our number one priority and all Australian Safety Standards are adhered to. All Go Karts have head restraints, seat belts and wrap-around protection bumpers.
+
+Conveniently located just 30 minutes south of Brisbane in Logan City and just 35 minutes from Surfers Paradise up the M1. 
