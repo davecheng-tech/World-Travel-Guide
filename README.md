@@ -15,5 +15,9 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ## Europe
 
+### [The London Eye] (https://www.londoneye.com/) - London, United Kingdom
+
+A ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually.
+
 ## Oceania
 
