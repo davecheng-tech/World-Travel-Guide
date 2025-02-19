@@ -14,7 +14,7 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 ### The Well - Toronto, ON, Canada
 ![The Well Photo Interior](https://github.com/user-attachments/assets/b23bbf7d-f6fc-471e-8517-3cf796097cb1)
 
-[The Well]([url](https://thewelltoronto.com/)), its name deriving from Wellington Street, the street that flanks the property, is a residential complex and shopping mall with varied uses. The location is calming with interesting architectural design. The design is phenomenal, allowing many different amenities to be provided in a fairly small area, without making it feel crowded. (Contributor: Ethan S)
+[The Well]((https://thewelltoronto.com/)), its name deriving from Wellington Street, the street that flanks the property, is a residential complex and shopping mall with varied uses. The location is calming with interesting architectural design. The design is phenomenal, allowing many different amenities to be provided in a fairly small area, without making it feel crowded. (Contributor: Ethan S)
 
 ## Asia
 
