@@ -30,4 +30,4 @@ Experience a real race event on a 1100m international standard circuit on our Le
 
 Your safety is our number one priority and all Australian Safety Standards are adhered to. All Go Karts have head restraints, seat belts and wrap-around protection bumpers.
 
-Conveniently located just 30 minutes south of Brisbane in Logan City and just 35 minutes from Surfers Paradise up the M1. (Contributor: P. Wong)
+Conveniently located just 30 minutes south of Brisbane in Logan City and just 35 minutes from Surfers Paradise up the M1. (Contributor: P. Wong) 
