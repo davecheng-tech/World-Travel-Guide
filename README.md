@@ -17,7 +17,7 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ### [The London Eye] (https://www.londoneye.com/) - London, United Kingdom
 
-A ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually.
+A ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually. 135 metres tall and 120 metres in diameter, built in 1999, and a popular tourist spot. (Contributor: Alina Meng)
 
 ## Oceania
 
