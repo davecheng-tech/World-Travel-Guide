@@ -23,3 +23,7 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 ## Oceania
 
+### Kingston Park Raceway - Brisbane, Australia 
+![Go karting Photo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSO-UROmdVXrbatiw6EHIkql09Fjxd7fEub0g&s)
+
+If you're looking for the ultimate Go Karting experience, then get on track here at [Kingston Park Raceway](https://kingstonpark.com.au/) and find out why so many of Brisbane's go karting enthusiasts keep coming back. It offers highspeed karting combiend with difficult tracks to drive around. It has a track for all levels of karters, especially with their new addition of the Le Mans track for those who are daring enough to attempt it. (Contributor: P. Wong) 
