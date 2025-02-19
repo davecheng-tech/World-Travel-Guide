@@ -13,6 +13,11 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 ## Asia
 
+### The Peak - Hong Kong, China 
+![](https://www.thepeak.com.hk/sites/peak/files/2018-08/The%20Peak%20Tower_06.jpg)
+
+Perched high above the bustling streets of Hong Kong, [The Peak](https://www.thepeak.com.hk/en)  offers a breathtaking escape with panoramic views of the city’s iconic skyline. As the highest point on Hong Kong Island, this renowned destination is home to the Peak Tower and Sky Terrace 428, where visitors can take in sweeping vistas of Victoria Harbour and the towering skyscrapers below. Whether arriving by the historic Peak Tram or exploring the scenic trails that wind through lush greenery, The Peak is a must-visit for travelers looking to experience the city from a whole new perspective. (Contributor: A. Lau)
+
 ## Europe
 
 ## Oceania
