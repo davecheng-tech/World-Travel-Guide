@@ -15,9 +15,12 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ## Europe
 
-### [Villa Magia Positano Luxury Boutique Resort](https://www.villamagiapositano.com/) - Positano, Italy
+### Positano, Italy
+
+#### [Villa Magia Positano Luxury Boutique Resort](https://www.villamagiapositano.com/)
 
 Villa Magia is set atop the summit of colorful houses cascading down the cliffside in Positano. From this vantage point, it offers guests one of the most majestic and sweeping views of the town. It is also one of the few points that overlooks Positano's main beaches. Positano is known for its steep stairways, and Villa Magia is no exception. Never fear, however, because our staff is ready to help you experience the magic of our town as if you were one of our fellow residents. We'll ensure that your stairs are always downhill, and we'll accompany you every step of the way with luggage porter services and much more.
+(Contributer: Nate Judd)
 
 ## Oceania
 
