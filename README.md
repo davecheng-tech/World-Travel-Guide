@@ -15,7 +15,7 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
 
-[Tokyo Tower](https://www.japan.travel/en/spot/1709/) is a red-and-white communications and observation tower in Minato, Tokyo, standing at 333 meters (1,093 feet). Inspired by the Eiffel Tower, it was completed in 1958 and serves as a symbol of Japan’s post-war recovery. The tower offers panoramic views of Tokyo from its main and top observation decks. It also houses museums, shops, and an aquarium, making it a popular tourist attraction.
+[Tokyo Tower](https://www.japan.travel/en/spot/1709/) is a red-and-white communications and observation tower in Minato, Tokyo, standing at 333 meters (1,093 feet). Inspired by the Eiffel Tower, it was completed in 1958 and serves as a symbol of Japan’s post-war recovery. The tower offers panoramic views of Tokyo from its main and top observation decks. It also houses museums, shops, and an aquarium, making it a popular tourist attraction. (Contributor: Jacky Ho)
 
 ## Europe
 
