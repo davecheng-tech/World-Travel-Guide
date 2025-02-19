@@ -11,14 +11,12 @@ A crowd-sourced travel guide to interesting places throughout the world.
 
 Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice skating experience in the heart of Toronto. This 220-meter figure-eight trail winds through the city’s underpass, surrounded by modern art installations and twinkling lights, creating a one-of-a-kind winter atmosphere. With skate rentals, hot drinks, and a lively community vibe, it’s a must-visit for locals and tourists alike. (Contributor: D. Cheng)
 
-
-<hr>
-Name: Fairview Mall
-Location: 1800 Sheppard Ave E, Toronto, ON M2J 5A7
-Coordinates: 43.77793974773491, -79.3440914
+## Fairview Mall
+### 1800 Sheppard Ave E, Toronto, ON M2J 5A7
+#### 43.77793974773491, -79.3440914
 ![CF_Fairview_Mall_Aerial_view_2023](https://github.com/user-attachments/assets/b3693204-8ea6-4d87-831b-bfb69c38ef74)
 
-Why do I like Fairview:
+#### Why do I like Fairview
 I like Fairview mall since I have grown up around the area, and it is a nice walkable neighbourhood in the uppercore of Toronto, and the heart of North York. I used to go there all the time, and still go when I find the time. Since it is close to my house, I do sometimes find my self there or in the area after school, but not often.
 
 
