@@ -13,6 +13,12 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 ## Asia
 
+### Great Wall of China - Beijing, China
+
+![The Great Wall of China](https://images.nationalgeographic.org/image/upload/t_edhub_resource_key_image/v1638892506/EducationHub/photos/the-great-wall-of-china.jpg)
+
+[The Great Wall of China](https://en.wikipedia.org/wiki/Great_Wall_of_China) is located in Beijing. It shows how ancient Chinese people defended their homeland. The Great Wall has many observation decks. When the enemy is coming, the soldier will set up a fire to warn the next observation deck. This way the message will be sent to the emperor really quickly. (Contributor: Holly Wei)
+
 ## Europe
 
 ## Oceania
