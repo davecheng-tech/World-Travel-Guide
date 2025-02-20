@@ -19,6 +19,12 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 [The Great Wall of China](https://en.wikipedia.org/wiki/Great_Wall_of_China) is located in Beijing. It shows how ancient Chinese people defended their homeland. The Great Wall has many observation decks. When the enemy is coming, the soldier will set up a fire to warn the next observation deck. This way the message will be sent to the emperor really quickly. (Contributor: Holly Wei)
 
+### Taj Mahal - Agra, India
+
+![Taj Mahal](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Taj_Mahal_%28Edited%29.jpeg/640px-Taj_Mahal_%28Edited%29.jpeg)
+
+The Taj Mahal is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself.
+
 ## Europe
 
 ## Oceania
