@@ -13,7 +13,9 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ## Asia
 
-### [Visit Jewel](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/1c/29/d4/40/night-view-of-the-hsbc.jpg?w=1000&h=600&s=1) - Singapore, Singapore
+### [Visit Jewel](https://www.jewelchangiairport.com/en.html)- Singapore, Singapore
+
+![Jewel Photo](https://media.cntraveler.com/photos/5cdc6ee7a6a5c4323b2f0b02/16:9/w_2240,c_limit/Changi-Jewel_Lester-Ledesma__1220574.jpg)
 
 Jewel Changi Airport is a nature-themed entertainment and retail complex surrounded by and linked to one of the passenger terminals of Changi Airport, Singapore. Its centrepiece is the world's tallest indoor waterfall, the Rain Vortex, that is surrounded by a terraced forest setting. Jewel includes gardens, attractions, a hotel, about 300 retail and dining outlets, as well as early baggage check-in aviation facilities. (Contributer: C. Xia)
 
