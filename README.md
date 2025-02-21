@@ -15,7 +15,7 @@ Nestled beneath the Gardiner Expressway, The Bentway offers a uniquely urban ice
 
 ## Europe
 
-### [The London Eye] - London, United Kingdom
+### The London Eye - London, United Kingdom
 
 ![image](https://github.com/user-attachments/assets/f7ad6e54-87f7-4d88-8fad-fa0eba58b18c)
 
