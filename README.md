@@ -43,10 +43,10 @@ I like [Fairview mall](https://shops.cadillacfairview.com/property/cf-fairview-m
 
 ## Asia
 
-### [Historic Landmarks at Dazaifu](https://www.japan-guide.com/e/e4850.html) - Dazaifu(Fukuoka) , Kyushu , Japan
+### Historic Landmarks at Dazaifu - Dazaifu(Fukuoka) , Kyushu , Japan
 ![DazaifuShintoShrine photo](https://www.crossroadfukuoka.jp/storage/special_feature_paragraphs/4966/responsive_images/OATpX6t9NSmRStyRR6FfT7so2KasONhYlAWCPfyF__1200_800.jpg)
 
-Only 30 minutes away from the City of Fukuoka is Dazaifu, which is famous for its large Shinto Shrine and its historic design. With many breath taking buildings with historical signifacns as well as Museums for tourists this city its absouelty a must see for tourists. The city also has many street restaurants to have a tastey breakfast and lunch, a recomended visit would be Yamaya Base near the station for warm, crunchy baguettes filled with cheese and mentaiko. (Contributor: Nathan.So)
+Only 30 minutes away from the City of Fukuoka is [Dazaifu](https://www.japan-guide.com/e/e4850.html), which is famous for its large Shinto Shrine and its historic design. With many breathtaking buildings with historical significance as well as Museums for tourists this city its absoultly a must see for tourists. The city also has many street restaurants to have a tasty breakfast and lunch, a recommended visit would be Yamaya Base near the station for warm, crunchy baguettes filled with cheese and mentaiko. (Contributor: Nathan.So)
 
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
