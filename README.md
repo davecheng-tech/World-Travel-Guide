@@ -59,6 +59,12 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidetoiceland.is/travel-iceland/drive/seljalandsfoss) is a popular tourism destination near Iceland's southern coast. The 60-meter [waterfall](https://youtu.be/IQffwymLGu8) has a flow rate of one cubic meter each second and can be viewed year round. In addition, a path extending around the base allows for visitors to walk 360 degrees around the waterfall providing a unque viewing experience. Supplied by ice run off from the glaciers, the waterfall is one of Iceland's most stunning destination, it is highly recomended to visit if you have the chance. (Contributor: G. Du)
 
+### The London Eye - London, United Kingdom
+
+![image](https://github.com/user-attachments/assets/f7ad6e54-87f7-4d88-8fad-fa0eba58b18c)
+
+[The London Eye]([url](https://www.londoneye.com/)) is a ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually. 135 metres tall and 120 metres in diameter, built in 1999, and a popular tourist spot. (Contributor: Alina Meng)
+
 ## Oceania
 
 ### Kingston Park Raceway - Brisbane, Australia 
