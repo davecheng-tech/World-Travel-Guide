@@ -104,6 +104,14 @@ The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) a
 [St. Peter's Basilica](https://www.basilicasanpietro.va/en/) is a phenomenal church located in Vatican City and is one of the most sought-after destinations in Rome. A classic example of Renaissance architecture, the church is not only the spiritual core of the Catholic church, but also a treasure trove of historic, religious, and artistic masterpieces of Michelangelo, Bernini, and others. Buried over the site of St Peter’s martyrdom, the Basilica hosts much of the Pope’s liturgies. (Contributor: Justin M)
 
 
+
+### The Spire of Dublin - Dublin, Ireland
+
+![dublin_spire_photo](https://assets-eu-01.kc-usercontent.com/aa24ba70-9a12-01ae-259b-7ef588a0b2ef/d0d73673-8d22-41fa-a17c-4224113fb7bf/c6560a34-0141-4f78-aba6-796e95e58169_31186.jpg?)
+
+
+In the heart of Dublin, in the middle of O'Cornell St, there is a very tall and shiny pole. [The Dublin Spire](https://www.visitdublin.com/the-spire), standing at 120 meters tall, offers absolutely nothing and costs the city more than € 84,000 each year in its upkeep. The Spike stands out from the rest of the city, being the tallest publicly accessable structure in Dublin, and is widely disliked by locals. If you ever find yourself lost in the streets of Dublin, just follow the giant tower and you'll figure out where you are. (Contributor: E. Liu)
+
 ## Oceania
 
 ### Kingston Park Raceway - Brisbane, Australia 
