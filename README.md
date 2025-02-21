@@ -64,6 +64,19 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 [The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself. Taj Mahal is a place that you should not miss. (Contributor: H. Vijay Inbasri)
 
+### Visiting the Wuyi Mountains - Fujian and Jiangxi, China
+
+![View above the clouds](https://www.chinadiscovery.com/assets/images/fujian/wuyi-mountain/cloud-nest-1.jpg)
+
+The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
+
+### [Visit Jewel](https://www.jewelchangiairport.com/en.html)- Singapore, Singapore
+
+![Jewel Photo](https://media.cntraveler.com/photos/5cdc6ee7a6a5c4323b2f0b02/16:9/w_2240,c_limit/Changi-Jewel_Lester-Ledesma__1220574.jpg)
+
+Jewel Changi Airport is a nature-themed entertainment and retail complex surrounded by and linked to one of the passenger terminals of Changi Airport, Singapore. Its centrepiece is the world's tallest indoor waterfall, the Rain Vortex, that is surrounded by a terraced forest setting. Jewel includes gardens, attractions, a hotel, about 300 retail and dining outlets, as well as early baggage check-in aviation facilities. (Contributer: C. Xia)
+
+
 ## Europe 
 
 ### Seljalandsfoss - Southern Region, Iceland
@@ -83,12 +96,6 @@ Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidet
 ![positano photo](https://d1y2b7cw1bm7e.cloudfront.net/page_section/585/imagemain/pool-and-wellness_p3x2_0_0_864.jpg?mt=20241128133303)
 
 [Villa Magia](https://www.villamagiapositano.com/) is set atop the summit of colorful houses cascading down the cliffside in Positano. From this vantage point, it offers guests one of the most majestic and sweeping views of the town. It is also one of the few points that overlooks Positano's main beaches. Positano is known for its steep stairways, and Villa Magia is no exception. Never fear, however, because our staff is ready to help you experience the magic of our town as if you were one of our fellow residents. We'll ensure that your stairs are always downhill, and we'll accompany you every step of the way with luggage porter services and much more. (Contributor: Nate Judd)
-
-### Visiting the Wuyi Mountains - Fujian and Jiangxi, China
-
-![View above the clouds](https://www.chinadiscovery.com/assets/images/fujian/wuyi-mountain/cloud-nest-1.jpg)
-
-The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
 
 ### St. Peter's Basilica - Rome, Italy 
 
