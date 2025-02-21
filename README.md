@@ -42,6 +42,12 @@ I like [Fairview mall](https://shops.cadillacfairview.com/property/cf-fairview-m
 
 
 ## Asia
+
+### Historic Landmarks at Dazaifu - Dazaifu(Fukuoka) , Kyushu , Japan
+![DazaifuShintoShrine photo](https://www.crossroadfukuoka.jp/storage/special_feature_paragraphs/4966/responsive_images/OATpX6t9NSmRStyRR6FfT7so2KasONhYlAWCPfyF__1200_800.jpg)
+
+Only 30 minutes away from the City of Fukuoka is [Dazaifu](https://www.japan-guide.com/e/e4850.html), which is famous for its large Shinto Shrine and its historic design. With many breathtaking buildings with historical significance as well as Museums for tourists this city its absoultly a must see for tourists. The city also has many street restaurants to have a tasty breakfast and lunch, a recommended visit would be Yamaya Base near the station for warm, crunchy baguettes filled with cheese and mentaiko. (Contributor: Nathan.So)
+
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
 
@@ -63,6 +69,7 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 ![Taj Mahal](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Taj_Mahal_%28Edited%29.jpeg/640px-Taj_Mahal_%28Edited%29.jpeg)
 
 [The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself. Taj Mahal is a place that you should not miss. (Contributor: H. Vijay Inbasri)
+
 
 ## Europe 
 
@@ -96,6 +103,14 @@ The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) a
 
 [St. Peter's Basilica](https://www.basilicasanpietro.va/en/) is a phenomenal church located in Vatican City and is one of the most sought-after destinations in Rome. A classic example of Renaissance architecture, the church is not only the spiritual core of the Catholic church, but also a treasure trove of historic, religious, and artistic masterpieces of Michelangelo, Bernini, and others. Buried over the site of St Peter’s martyrdom, the Basilica hosts much of the Pope’s liturgies. (Contributor: Justin M)
 
+
+
+### The Spire of Dublin - Dublin, Ireland
+
+![dublin_spire_photo](https://assets-eu-01.kc-usercontent.com/aa24ba70-9a12-01ae-259b-7ef588a0b2ef/d0d73673-8d22-41fa-a17c-4224113fb7bf/c6560a34-0141-4f78-aba6-796e95e58169_31186.jpg?)
+
+
+In the heart of Dublin, in the middle of O'Cornell St, there is a very tall and shiny pole. [The Dublin Spire](https://www.visitdublin.com/the-spire), standing at 120 meters tall, offers absolutely nothing and costs the city more than € 84,000 each year in its upkeep. The Spike stands out from the rest of the city, being the tallest publicly accessable structure in Dublin, and is widely disliked by locals. If you ever find yourself lost in the streets of Dublin, just follow the giant tower and you'll figure out where you are. (Contributor: E. Liu)
 
 ## Oceania
 
