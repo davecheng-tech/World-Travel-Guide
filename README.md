@@ -4,6 +4,10 @@ A crowd-sourced travel guide to interesting places throughout the world.
 ## Africa
 
 ## Americas
+### The Polynesian Cultural Center - Hawaii, USA
+![image](https://github.com/user-attachments/assets/c4c65387-b5da-4853-85b8-8215358d2560)
+
+Located on the northern shore of Oahu, Hawaii, [the Polynesian Cultural Center](https://www.polynesia.com/) is Oahu's #1 tourist attraction with six unique island villages. As Oahu's most authentic Luau, the PCC offers many activities such as the [Islands of Polynesia tour](https://www.polynesia.com/packages/all/islands-of-polynesia), which is a guided tour through the six authentic villages, the Ali'i Lu'au buffet, an award winning buffet and Luau with live entertainment, and the [HA: Breath of Life Show](https://www.polynesia.com/ha-show), a Broadway-caliber evening show. (Contributor: E. Yap)
 
 ### Ice Skating on the Bentway - Toronto, ON, Canada
 
@@ -28,6 +32,15 @@ The crashing waters of [Niagara Falls](https://www.tripadvisor.com/Attraction_Re
 
 [Cloud Gate](https://www.choosechicago.com/articles/tours-and-attractions/the-bean-chicago/) is a renowned sculpture crafted by British artist Anish Kapoor. Making its debute in 2006, the scuplure is more commonly refered to as "The Bean" due to it's distinctive  ean-like shape. The structure towers 33 feet tall and spans 66 feet long. The entire Bean is crafted purely from stainless steel with a mirror finish. The Bean is iconic due to its distorted reflelctions that are produced from the oddly shaped mirrors. It is a symbol of Chicago that has become beloved by the locals. (Contributor: M. Lai)
 
+## Fairview Mall - Toronto, ON, Canada
+
+![CF_Fairview_Mall_Aerial_view_2023](https://github.com/user-attachments/assets/b3693204-8ea6-4d87-831b-bfb69c38ef74)
+
+I like [Fairview mall](https://shops.cadillacfairview.com/property/cf-fairview-mall) since I have grown up around the area, and it is a nice walkable neighbourhood in the uppercore of Toronto, and the heart of North York. I used to go there all the time, and still go when I find the time. Since it is close to my house, I do sometimes find my self there or in the area after school, but not often (Contributor: Joel Menezes).
+
+
+
+
 ## Asia
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
@@ -49,15 +62,33 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 ![Taj Mahal](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Taj_Mahal_%28Edited%29.jpeg/640px-Taj_Mahal_%28Edited%29.jpeg)
 
-[The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself.
+[The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself. Taj Mahal is a place that you should not miss. (Contributor: H. Vijay Inbasri)
+
+## Europe 
+
+### Seljalandsfoss - Southern Region, Iceland
+
+![seljalandsfoss photo](https://t1.gstatic.com/licensed-image?q=tbn:ANd9GcTnNbpBd3HFfpylrDqOIFOZKDnVrxwT8Y6h7cjeCarWF-g7Nvn3tD6ucH7xc1vzPM6g)
+
+Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidetoiceland.is/travel-iceland/drive/seljalandsfoss) is a popular tourism destination near Iceland's southern coast. The 60-meter [waterfall](https://youtu.be/IQffwymLGu8) has a flow rate of one cubic meter each second and can be viewed year round. In addition, a path extending around the base allows for visitors to walk 360 degrees around the waterfall providing a unque viewing experience. Supplied by ice run off from the glaciers, the waterfall is one of Iceland's most stunning destination, it is highly recomended to visit if you have the chance. (Contributor: G. Du)
+
+### The London Eye - London, United Kingdom
+
+![image](https://github.com/user-attachments/assets/f7ad6e54-87f7-4d88-8fad-fa0eba58b18c)
+
+[The London Eye]([url](https://www.londoneye.com/)) is a ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually. 135 metres tall and 120 metres in diameter, built in 1999, and a popular tourist spot. (Contributor: Alina Meng)
+
+### Villa Magia Positano Luxury Boutique Resort - Positano, Italy
+
+![positano photo](https://d1y2b7cw1bm7e.cloudfront.net/page_section/585/imagemain/pool-and-wellness_p3x2_0_0_864.jpg?mt=20241128133303)
+
+[Villa Magia](https://www.villamagiapositano.com/) is set atop the summit of colorful houses cascading down the cliffside in Positano. From this vantage point, it offers guests one of the most majestic and sweeping views of the town. It is also one of the few points that overlooks Positano's main beaches. Positano is known for its steep stairways, and Villa Magia is no exception. Never fear, however, because our staff is ready to help you experience the magic of our town as if you were one of our fellow residents. We'll ensure that your stairs are always downhill, and we'll accompany you every step of the way with luggage porter services and much more. (Contributor: Nate Judd)
 
 ### Visiting the Wuyi Mountains - Fujian and Jiangxi, China
 
 ![View above the clouds](https://www.chinadiscovery.com/assets/images/fujian/wuyi-mountain/cloud-nest-1.jpg)
 
 The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
-
-## Europe
 
 ### St. Peter's Basilica - Rome, Italy 
 
