@@ -42,6 +42,12 @@ I like [Fairview mall](https://shops.cadillacfairview.com/property/cf-fairview-m
 
 
 ## Asia
+
+### Historic Landmarks at Dazaifu - Dazaifu(Fukuoka) , Kyushu , Japan
+![DazaifuShintoShrine photo](https://www.crossroadfukuoka.jp/storage/special_feature_paragraphs/4966/responsive_images/OATpX6t9NSmRStyRR6FfT7so2KasONhYlAWCPfyF__1200_800.jpg)
+
+Only 30 minutes away from the City of Fukuoka is [Dazaifu](https://www.japan-guide.com/e/e4850.html), which is famous for its large Shinto Shrine and its historic design. With many breathtaking buildings with historical significance as well as Museums for tourists this city its absoultly a must see for tourists. The city also has many street restaurants to have a tasty breakfast and lunch, a recommended visit would be Yamaya Base near the station for warm, crunchy baguettes filled with cheese and mentaiko. (Contributor: Nathan.So)
+
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
 
@@ -63,6 +69,7 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 ![Taj Mahal](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Taj_Mahal_%28Edited%29.jpeg/640px-Taj_Mahal_%28Edited%29.jpeg)
 
 [The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself. Taj Mahal is a place that you should not miss. (Contributor: H. Vijay Inbasri)
+
 
 ## Europe 
 
