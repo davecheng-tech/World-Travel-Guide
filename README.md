@@ -17,9 +17,7 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 ![View above the clouds](https://www.chinadiscovery.com/assets/images/fujian/wuyi-mountain/cloud-nest-1.jpg)
 
-The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. 
-
-Contributor: Lucian Chen
+The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
 
 ## Europe
 
