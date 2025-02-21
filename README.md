@@ -28,6 +28,15 @@ The crashing waters of [Niagara Falls](https://www.tripadvisor.com/Attraction_Re
 
 [Cloud Gate](https://www.choosechicago.com/articles/tours-and-attractions/the-bean-chicago/) is a renowned sculpture crafted by British artist Anish Kapoor. Making its debute in 2006, the scuplure is more commonly refered to as "The Bean" due to it's distinctive  ean-like shape. The structure towers 33 feet tall and spans 66 feet long. The entire Bean is crafted purely from stainless steel with a mirror finish. The Bean is iconic due to its distorted reflelctions that are produced from the oddly shaped mirrors. It is a symbol of Chicago that has become beloved by the locals. (Contributor: M. Lai)
 
+## Fairview Mall - Toronto, ON, Canada
+
+![CF_Fairview_Mall_Aerial_view_2023](https://github.com/user-attachments/assets/b3693204-8ea6-4d87-831b-bfb69c38ef74)
+
+I like [Fairview mall](https://shops.cadillacfairview.com/property/cf-fairview-mall) since I have grown up around the area, and it is a nice walkable neighbourhood in the uppercore of Toronto, and the heart of North York. I used to go there all the time, and still go when I find the time. Since it is close to my house, I do sometimes find my self there or in the area after school, but not often (Contributor: Joel Menezes).
+
+
+
+
 ## Asia
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
