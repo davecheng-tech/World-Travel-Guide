@@ -51,6 +51,12 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 [The Taj Mahal](https://en.wikipedia.org/wiki/Taj_Mahal) is an ivory-white marble mausoleum on the right bank of the river Yamuna in Agra, Uttar Pradesh, India. It was commissioned in 1631 by the fifth Mughal emperor, Shah Jahan to house the tomb of his beloved wife, Mumtaz Mahal; it also houses the tomb of Shah Jahan himself.
 
+### Visiting the Wuyi Mountains - Fujian and Jiangxi, China
+
+![View above the clouds](https://www.chinadiscovery.com/assets/images/fujian/wuyi-mountain/cloud-nest-1.jpg)
+
+The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
+
 ## Europe
 
 ### St. Peter's Basilica - Rome, Italy 
