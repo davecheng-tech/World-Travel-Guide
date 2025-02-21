@@ -16,6 +16,12 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 [The Well](https://thewelltoronto.com/), its name deriving from Wellington Street, the street that flanks the property, is a residential complex and shopping mall with varied uses. The location is calming with interesting architectural design. The design is phenomenal, allowing many different amenities to be provided in a fairly small area, without making it feel crowded. (Contributor: Ethan Selvarajah)
 
+### The Bean - Chicago, Il, USA
+
+![Bean_Photo](https://d2d45aw5ucb5xn.cloudfront.net/wp-content/uploads/2023/01/22075529/chicago-BEAN-Lisa-jan-2023-scaled.jpg)
+
+[Cloud Gate](https://www.choosechicago.com/articles/tours-and-attractions/the-bean-chicago/) is a renowned sculpture crafted by British artist Anish Kapoor. Making its debute in 2006, the scuplure is more commonly refered to as "The Bean" due to it's distinctive  ean-like shape. The structure towers 33 feet tall and spans 66 feet long. The entire Bean is crafted purely from stainless steel with a mirror finish. The Bean is iconic due to its distorted reflelctions that are produced from the oddly shaped mirrors. It is a symbol of Chicago that has become beloved by the locals. (Contributor: M. Lai)
+
 ## Asia
 ### Tokyo Tower | Travel Japan - Minato City, Tokyo, Japan
 ![tokyo_tower_photo](https://asset.japan.travel/image/upload/v1646014276/tokyo/H_00658_001.jpg)
