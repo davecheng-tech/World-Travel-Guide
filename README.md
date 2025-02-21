@@ -19,7 +19,7 @@ Nestled beneath the Gardiner Expressway in Toronto, [The Bentway](https://theben
 
 ![seljalandsfoss photo](https://t1.gstatic.com/licensed-image?q=tbn:ANd9GcTnNbpBd3HFfpylrDqOIFOZKDnVrxwT8Y6h7cjeCarWF-g7Nvn3tD6ucH7xc1vzPM6g)
 
-Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidetoiceland.is/travel-iceland/drive/seljalandsfoss) is a popular tourism destination near Iceland's southern coast. The 60-meter waterfall has a flow rate of one cubic meter each second and can be viewed year round. In addition, a path extending around the base allows for visitors to walk 360 degrees around the waterfall providing a unque viewing experience. Supplied by ice run off from the glaciers, the waterfall is one of Iceland's most stunning destination, it is highly recomended to visit if you have the chance. (Contributor: G. Du)
+Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidetoiceland.is/travel-iceland/drive/seljalandsfoss) is a popular tourism destination near Iceland's southern coast. The 60-meter [waterfall](https://youtu.be/IQffwymLGu8) has a flow rate of one cubic meter each second and can be viewed year round. In addition, a path extending around the base allows for visitors to walk 360 degrees around the waterfall providing a unque viewing experience. Supplied by ice run off from the glaciers, the waterfall is one of Iceland's most stunning destination, it is highly recomended to visit if you have the chance. (Contributor: G. Du)
 
 ## Oceania
 
