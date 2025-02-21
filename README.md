@@ -53,6 +53,13 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 ## Europe
 
+### St. Peter's Basilica - Rome, Italy 
+
+![basilica photo](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Basilica_di_San_Pietro_in_Vaticano_September_2015-1a.jpg/640px-Basilica_di_San_Pietro_in_Vaticano_September_2015-1a.jpg)
+
+[St. Peter's Basilica](https://www.basilicasanpietro.va/en/) is a phenomenal church located in Vatican City and is one of the most sought-after destinations in Rome. A classic example of Renaissance architecture, the church is not only the spiritual core of the Catholic church, but also a treasure trove of historic, religious, and artistic masterpieces of Michelangelo, Bernini, and others. Buried over the site of St Peter’s martyrdom, the Basilica hosts much of the Pope’s liturgies. (Contributor: Justin M)
+
+
 ## Oceania
 
 ### Kingston Park Raceway - Brisbane, Australia 
