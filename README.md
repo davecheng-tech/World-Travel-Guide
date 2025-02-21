@@ -74,6 +74,12 @@ Located about a 2-hour drive east of Reykjavík, [Seljalandsfoss](https://guidet
 
 [The London Eye]([url](https://www.londoneye.com/)) is a ferris wheel on the South Bank of River Thames. They have more than 3 million visits annually. 135 metres tall and 120 metres in diameter, built in 1999, and a popular tourist spot. (Contributor: Alina Meng)
 
+### Villa Magia Positano Luxury Boutique Resort - Positano, Italy
+
+![positano photo](https://d1y2b7cw1bm7e.cloudfront.net/page_section/585/imagemain/pool-and-wellness_p3x2_0_0_864.jpg?mt=20241128133303)
+
+[Villa Magia](https://www.villamagiapositano.com/) is set atop the summit of colorful houses cascading down the cliffside in Positano. From this vantage point, it offers guests one of the most majestic and sweeping views of the town. It is also one of the few points that overlooks Positano's main beaches. Positano is known for its steep stairways, and Villa Magia is no exception. Never fear, however, because our staff is ready to help you experience the magic of our town as if you were one of our fellow residents. We'll ensure that your stairs are always downhill, and we'll accompany you every step of the way with luggage porter services and much more. (Contributor: Nate Judd)
+
 ## Oceania
 
 ### Kingston Park Raceway - Brisbane, Australia 
