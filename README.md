@@ -70,11 +70,11 @@ Perched high above the bustling streets of Hong Kong, [The Peak](https://www.the
 
 The [Wuyi Mountains](https://www.chinadiscovery.com/fujian/wuyi-mountain.html) are a mountain range part of the UNESCO World Heritage Site since 1999. There is an endless list of things you could do! Look above the clouds at various peaks, ride a bamboo raft down the stream, or just sit down for a cup of oolong or black tea. (Contributor: Lucian Chen)
 
-### [Visit Jewel](https://www.jewelchangiairport.com/en.html)- Singapore, Singapore
+### Visit Jewel - Changi, Singapore
 
 ![Jewel Photo](https://media.cntraveler.com/photos/5cdc6ee7a6a5c4323b2f0b02/16:9/w_2240,c_limit/Changi-Jewel_Lester-Ledesma__1220574.jpg)
 
-Jewel Changi Airport is a nature-themed entertainment and retail complex surrounded by and linked to one of the passenger terminals of Changi Airport, Singapore. Its centrepiece is the world's tallest indoor waterfall, the Rain Vortex, that is surrounded by a terraced forest setting. Jewel includes gardens, attractions, a hotel, about 300 retail and dining outlets, as well as early baggage check-in aviation facilities. (Contributer: C. Xia)
+[Jewel Changi Airport](https://www.jewelchangiairport.com/en.html) is a nature-themed entertainment and retail complex surrounded by and linked to one of the passenger terminals of Changi Airport, Singapore. Its centrepiece is the world's tallest indoor waterfall, the Rain Vortex, that is surrounded by a terraced forest setting. Jewel includes gardens, attractions, a hotel, about 300 retail and dining outlets, as well as early baggage check-in aviation facilities. (Contributer: C. Xia)
 
 
 ## Europe 
